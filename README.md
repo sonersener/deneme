@@ -1,0 +1,2 @@
+# deneme
+ne yaptigimi bilmiyorum
